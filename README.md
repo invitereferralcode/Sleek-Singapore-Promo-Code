@@ -1,5 +1,5 @@
 <h1>Sleek Singapore Promo Code: AF344595 – Get Exclusive Discounts on Business Services</h1>
-<p>Unlock amazing discounts on company incorporation, accounting, and secretarial services when you sign up with <a href="https://sleek.com/sg/" target="_blank">Sleek Singapore using the promo code AF344595</a><span class="promo-code"></span>.</p>
+<p>Unlock amazing discounts on company incorporation, accounting, and secretarial services when you sign up with <a href="https://sleek.com/sg/" target="_blank">Sleek Singapore</a> using the promo code AF344595</p>
 <p>New users can enjoy significant savings on their business registration and compliance services by using this exclusive promo code.</p>
 
 <h2>Promo Code and Discount Table</h2>
