@@ -12,12 +12,12 @@
     <tr>
         <td><strong>AF344595</strong></td>
         <td>Company Incorporation</td>
-        <td>Special Discount</td>
+        <td>discount of S$100/HKD500 on eligible Sleek services</td>
     </tr>
     <tr>
         <td><strong>AF344595</strong></td>
         <td>Accounting Services</td>
-        <td>Exclusive Savings</td>
+        <td>discount of S$100/HKD500 on eligible Sleek services</td>
     </tr>
 </table>
 
